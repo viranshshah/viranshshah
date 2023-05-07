@@ -13,7 +13,7 @@
 
 - 🤝 I’m looking for help with **connecting to various employers for my 2023 spring co-op.**
 
-- 😄 Pronouns **Vi-ra-ansh**
+- 😄 Pronunciation **Vi-ra-ansh**
 
 - 📫 How to reach me **shahv47@mcmaster.ca, viranshshah@gmail.com**
 
